@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Caro.
+- 👀 I’m interested in everything tech, minimalism, coffee, productivity & personal dev. 
+- 🌱 I’m currently studying Programming @Thomas More - University of Applied Sciences in Antwerp, Belgium.
+- ⚡ Fun fact: The broken pinky on my right hand allows me to access my numeric keyboard effortlessly!
